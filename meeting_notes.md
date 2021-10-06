@@ -66,3 +66,4 @@ Present: Harry, Kyle, Jyothi, Krystal
 
 -----------------------------------------------------------------------------------------------------------------------------------------------------------------
 ## Presentation
+https://docs.google.com/presentation/d/1_aBrX5hRLKyGkbuhyHiQy17jugFiyBu4o-Xa3ZeolZw/edit#slide=id.gf5cf6e2850_3_2 
